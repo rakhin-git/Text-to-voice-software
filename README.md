@@ -1,0 +1,1 @@
+in reading time, when we get into a problem of pronunciation, we copy the word or sentence and paste anywhere mostly in online platform to hear the sound, to solve this problem, this software help us, just select the word or sentence it pronunciate the word or sentence, if we want to rehear just press on "r" button.
